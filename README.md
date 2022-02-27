@@ -1,1 +1,1 @@
-# jonas.tenora-motivacni.dopis.com
+# jonas.tenora-kontakty.com
